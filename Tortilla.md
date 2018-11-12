@@ -4,7 +4,6 @@ Ingredientes (4 personas):
 1 cebolla pequeña
 1 pimiento verde
 2 vasos de aceite de oliva
-sal
 una hoja de perejil
 Elaboración
 Pela y pica la cebolla en dados medianos. Limpia el pimiento verde, retírale el tallo y las pepitas y córtalo en dados.
